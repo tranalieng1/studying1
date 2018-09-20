@@ -1,5 +1,4 @@
 # studying1
 zzz
-Vip
-xcxcxcxcxcxcxcxcx
-gaga
+ratata
+xxxxxx
